@@ -1,1 +1,0 @@
-# Homeless-uplifiting-app-project
